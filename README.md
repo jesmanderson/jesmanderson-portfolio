@@ -49,7 +49,7 @@ Hi 👋🏾 I’m Jessica, a Voice Network Engineer transitioning into **Cloud S
 ---
 
 ## 📂 Resume
-📄 [Download Resume (PDF)](resume/Jessica_Anderson_Resume.pdf)
+📄 Jessica Anderson September 2025.pdf
 
 ---
 
